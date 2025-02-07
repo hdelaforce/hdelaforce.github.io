@@ -1,1 +1,0 @@
-# hdelaforce.github.io
